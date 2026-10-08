@@ -1,0 +1,2 @@
+# premium-didge-build-001-didgeridoo-eucalyptus-bore-pla
+Struggling to find eucalyptus branches with that perfect natural bore for your didgeridoo? Stop guessing and start planning with the Didgeridoo Eucalyptus Bore Planner.  This Notion template solves the chaos of tracking multiple logs, bore dimensions, and project stages. It's the best tool for didgeridoo builders who need a systematic way to manage
